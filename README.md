@@ -15,7 +15,7 @@ I'm a person who likes to explore vast knowledge that I could grap. A wise perso
 
 ### 🌹BoE  
 
-<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35px" height="35px"></h1>
+<img src="https://tenor.com/view/hutao-money-hu-tao-genshin-gif-24914368" width="35px" height="35px"></h1>
 
 ---
 
