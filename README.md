@@ -15,7 +15,7 @@ I'm a person who likes to explore vast knowledge that I could grap. A wise perso
 
 ### 🌹BoE  
 
-<div class="tenor-gif-embed" data-postid="24914368" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/hutao-money-hu-tao-genshin-gif-24914368">Hutao Money Hu Tao Genshin Sticker</a>from <a href="https://tenor.com/search/hutao+money+hu+tao+genshin-stickers">Hutao Money Hu Tao Genshin Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img src="https://tenor.com/bQHwO.gif">
 
 ---
 
